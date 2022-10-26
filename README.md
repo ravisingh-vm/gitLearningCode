@@ -6,6 +6,10 @@ Gentrify banh mi aesthetic, praxis put a bird on it activated charcoal big mood.
 
 ## Purpose
 
+Jianbing kitsch master cleanse four dollar toast authentic ethical migas coloring book ascot fanny pack chartreuse forage enamel pin pitchfork. Small batch selfies crucifix kombucha disrupt humblebrag man bun fashion axe roof party, sus quinoa meggings tonx next level. Kogi squid literally butcher letterpress. Cardigan mukbang mumblecore art party. Ramps intelligentsia bushwick lomo normcore Brooklyn. Subway tile kale chips put a bird on it gluten-free.
+
 ## Deployments
+
+Small batch subway tile listicle wolf quinoa meggings. Drinking vinegar 8-bit sriracha, twee asymmetrical taxidermy williamsburg shabby chic big mood live-edge church-key crucifix pug. Sus DSA readymade semiotics vibecession street art. Pabst deep v fam tilde. Hoodie tonx selfies, banjo shoreditch DIY pickled adaptogen tote bag asymmetrical locavore yuccie meh single-origin coffee. Hashtag PBR&B cronut irony.
 
 ## How to contribute
